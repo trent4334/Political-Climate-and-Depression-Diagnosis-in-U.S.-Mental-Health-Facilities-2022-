@@ -1,0 +1,1 @@
+# Political-Climate-and-Depression-Diagnosis-in-U.S.-Mental-Health-Facilities-2022-
